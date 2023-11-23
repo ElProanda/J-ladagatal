@@ -1,1 +1,1 @@
-# J-ladagatal
+# Jóladagatal
